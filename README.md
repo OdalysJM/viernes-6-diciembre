@@ -1,4 +1,4 @@
-# Hoy no es jueves! 
+# Hoy no es jueves! :)
 
 Hola, hoy es el último día de clases!
 
