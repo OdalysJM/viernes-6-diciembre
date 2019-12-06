@@ -1,4 +1,4 @@
-# viernes-6-diciembre
+# Hoy es viernes! :)
 
 Hola, hoy es el último día de clases!
 
